@@ -2,4 +2,4 @@
 League of Legend
 online game
 
-SKT! KT!
+SKT! KT! Longzhu!
